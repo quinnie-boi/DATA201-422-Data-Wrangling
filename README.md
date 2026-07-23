@@ -7,3 +7,4 @@
 # Im in! - Jodi (jaj88nz)
 # Any word from Namit? Want me to shake them down? (¬‿¬) 
 # no word so far!! I was thinking about emailing them about the trello board etc ?? - Alex
+# alex again, yeah I will email them to check (Thurs arvo)
